@@ -1,5 +1,5 @@
 
-## For more easy to read
+## For easier reading
 
 
 ### For Step 1:
